@@ -1,1 +1,0 @@
-# RoyReynalldi.github.io
